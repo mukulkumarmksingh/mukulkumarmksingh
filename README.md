@@ -24,14 +24,24 @@
 📫 Let's connect:
 
 ✉️ Email: mukulkumarmksingh@gmail.com
-Facebook Page
-Instagram
-Twitter
-YouTube
-GitHub
+
+Facebook Page: https://www.facebook.com/MyTechHacking
+
+Instagram: https://www.instagram.com/MyTechHacking
+
+Twitter: https://twitter.com/MyTechHacking
+
+YouTube: https://www.youtube.com/MyTechHacking
+
+GitHub: https://github.com/mukulkumarmksingh
+
+
 🌐 Personal Social Media:
 
-Facebook
-Instagram
-Twitter
-YouTube
+Facebook: https://www.facebook.com/mukulkumarmksingh8210
+
+Instagram: https://www.instagram.com/mukulkumarmksingh
+
+Twitter: https://twitter.com/Mukulkumarmksi4
+
+YouTube: https://www.youtube.com/MukulKumarMkSingh
